@@ -13,5 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ни
 - 😄 Pronouns: she\her
 - ⚡ Fun fact: я озабоченная
---> <img width="1213" height="691" alt="image" src="https://github.com/user-attachments/assets/998ecaa3-f572-460c-bd58-902390e746e2" />
+--> <img width="5859" height="2941" alt="Illustration8" src="https://github.com/user-attachments/assets/65530eaa-7327-4904-add6-a9eeed6bb1fd" />
+
 <img src="https://komarev.com/ghpvc/?username=Smirk021&style=flat-square&color=blue" alt=""/>
