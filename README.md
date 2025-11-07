@@ -1,5 +1,5 @@
 ##  (¬_¬ )
-INTP 5w4 sp\sx5 594 FLVE ＞︿＜
+INTP sp5w4 594 FLVE ＞︿＜
 <!--
 **Smirko21/Smirko21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
