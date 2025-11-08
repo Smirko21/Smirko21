@@ -1,19 +1,9 @@
 ##  (¬_¬ )
 INTP sp5w4 594 FLVE ＞︿＜
-<!--
-**Smirko21/Smirko21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="2598" height="454" alt="Без имени" src="https://github.com/user-attachments/assets/7b525f37-430d-4a98-981c-d0211f02c69f" />
+<img width="6000" height="3500" alt="Illustration8" src="https://github.com/user-attachments/assets/53e23afa-867b-4c5e-b037-6459c8bcdf85" />
+![picmix com_12499087](https://github.com/user-attachments/assets/5194b73d-c3bf-430c-86ef-6e7e8e8d55b8) ![picmix com_12460663](https://github.com/user-attachments/assets/1b80707c-fec0-41b4-a6cb-eaeb2726223d)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on Н76уя
-- 🌱 I’m currently learning англсиу  
-- 👯 I’m looking to collaborate on нисукем
-- 🤔 I’m looking for help with неь
-- 💬 Ask me about ничто
-- 📫 How to reach me: ни
-- 😄 Pronouns: she\her
-- ⚡ Fun fact: я озабоченная 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/108ed29f-2601-419e-b926-feb832a6e824" />
 
-–—(❁´◡`❁) 
 <img src="https://komarev.com/ghpvc/?username=Smirk021&style=flat-square&color=blue" alt=""/>
