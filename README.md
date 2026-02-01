@@ -1,5 +1,8 @@
 <img src="https://komarev.com/ghpvc/?username=Smirk021&style=simple-circle&color=7d97c7" alt=""/>
-<img width="1200" height="506" alt="image" src="https://github.com/user-attachments/assets/8b99999e-0881-4fe9-b6c0-c6f1c5dfb140" />
+
+![tenor (2)](https://github.com/user-attachments/assets/bf1c4857-cbb5-4264-8c86-4b68b8b1d72b)
+
+
 
 
 
