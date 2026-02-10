@@ -1,5 +1,5 @@
-<img width="641" height="103" alt="lenormand-topbar" src="https://github.com/user-attachments/assets/8c3b9e44-757b-4f62-b891-7308741f464c" />
 
-![griffith-berserk-griffith](https://github.com/user-attachments/assets/b522dd6a-8781-459c-ac5a-e4faff38fd84)
+![c31f7fc4eea85535cd8e23a53139165b](https://github.com/user-attachments/assets/96b561af-67b5-497d-8d4f-4f7f80cf982e)
 
-![](https://komarev.com/ghpvc/?username=Smirk021&style=for-the-badge&color=7d97c7&label=⩒)
+
+![](https://komarev.com/ghpvc/?username=Smirk021&style=for-the-badge&color=008080&label=⩒)
